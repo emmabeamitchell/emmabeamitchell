@@ -14,7 +14,7 @@ I'm currently a Master's student in [Environmental Data Science](https://bren.uc
 
 🌸 Surrounding myself with nature 🌸
 
-📖 Reading a million books at a time (recs anyone?)
+📖 Reading a million books at a time (recs anyone?) 📖
 
 
 ### Education
