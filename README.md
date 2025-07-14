@@ -19,7 +19,7 @@ I just graduated with a master's degree in [Environmental Data Science](https://
 
 ### Education
 
-- Master of Environmental Data Science @ UCSB (current)
+- Master of Environmental Data Science @ UCSB (2025)
 - BA in Environmental Science, Policy, and Justice (2022)
 
 
